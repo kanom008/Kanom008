@@ -5,10 +5,11 @@
 Here are some ideas to get you started:
 
 - ⚙️ se - rmutl
-- 🎤sing a song
+- 🎤 sing a song
 - 🏡 Nan Thailand
 - 👧🏻 Chayanit Suthathat
-- 💬 Ask me about cat 
+- 🐈 Hoshi boi 
 - 🧁 24 june 2008
 - 🎓 Pua school
 - 🍽️ Enjoy eating
+- 

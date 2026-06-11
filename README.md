@@ -12,4 +12,8 @@ Here are some ideas to get you started:
 - 🧁 24 june 2008
 - 🎓 Pua school
 - 🍽️ Enjoy eating
+- 🛌 i like to sleep
+- 🦞 แกะกุ้งสามโลได้
+- 🪿… เคยเลี้ยงเป็ดตอนปอสาม
+- 🧘🏼‍♀️ เล่นสร้างห้องฟีฟายชนะน้องชาย 7 -5 
   
